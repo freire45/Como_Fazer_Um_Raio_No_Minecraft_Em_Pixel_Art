@@ -2,4 +2,4 @@
 
 **Como Fazer Um Raio No Minecraft em Pixel Art**
 
-[![Como Fazer Um Raio No Minecraft em Pixel Art](https://img.youtube.com/vi/t-m5bST_0lI.jpg)](https://www.youtube.com/watch?v=t-m5bST_0lI)
+[![Como Fazer Um Raio No Minecraft em Pixel Art](https://img.youtube.com/vi/t-m5bST_0lI.png)](https://www.youtube.com/watch?v=t-m5bST_0lI)
